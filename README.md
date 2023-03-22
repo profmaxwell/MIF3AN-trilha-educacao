@@ -1,1 +1,1 @@
-# MIF3AN-your-studio
+# MIF3AN-your-study
