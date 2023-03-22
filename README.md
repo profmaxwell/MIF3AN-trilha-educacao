@@ -1,1 +1,1 @@
-# MIF3AN-trilha-educacao
+# MIF3AN-your-studio
